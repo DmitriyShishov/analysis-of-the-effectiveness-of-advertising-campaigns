@@ -1,0 +1,1 @@
+# analysis-of-the-effectiveness-of-advertising-campaigns
